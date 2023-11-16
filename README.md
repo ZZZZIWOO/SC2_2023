@@ -1,1 +1,2 @@
-# SC2_2023
+Email: won.sang.l@gmail.com
+
